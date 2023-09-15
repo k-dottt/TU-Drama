@@ -1,12 +1,18 @@
 # Tuskegee University Drama Association
 <br>
-Welcome to the official page for TU Drama! Our associoation was founded by Taylor Hagans in early 2023 in hopes of bringing a love and appreciation for the fine arts back to our lovely campus!
+Welcome to the official page for TU Drama! Our association was founded by Taylor Hagans in early 2023 in hopes of bringing a love and appreciation for the fine arts to our lovely campus!
 <br> <br>
-We are currently in search of talent for our very first production, Romeo and Juliet! Tell a friend to tell a friend about our auditons which will be held on **September 19th!** We are in search of actors, writers, directors, stagehands, lighting crew, sound crew, builders and more. If you hold interest in any capacity please do not hesitate to reach out!
+We are currently in search of talent for our very first production, Romeo and Juliet. Tell a friend to tell a friend about our auditons which will be held on **September 19th**! We are in search of actors, writers, directors, stagehands, lighting crew, sound crew, set builders and more. If you hold interest in any capacity please do not hesitate to reach out!
 <br> <br>
 For any questions regarding auditions please contact Kerri Barnes at kbarnes4229@tuskegee.edu <br>
 For any questions regarding technical crews please contact Kristen Wolfe at kwolfe6538@tuskegee.edu <br>
 For any other questions please contact Taylor Hagans at thagans3298@tuskegee.edu
+<br><br>
+### FAQs <br>
+*Where will auditions be held?* -- Kenney Hall room 202. <br>
+*Do I need to be an actor to join?* -- No. This organization is open to those interested in any capacity. <br>
+*What are the dues?* -- Our dues this year are $35 for actors and $20 for crew. This cost covers costume, makeup, mics, and all other expenses for this production. It also covers a T-shirt for the crew members. <br>
+*What if I am nervous about auditions?* -- Our advice to you is that it never hurts to try! If you would like to audition it is best to be prepared and do your best. Our team is very professional and will never intentionally embarrass you or hurt your feelings during an audition.
 <br><br>
 Please follow our Instagram for more updates!
 <br>
