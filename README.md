@@ -2,11 +2,11 @@
 <br>
 Welcome to the official page for TU Drama! Our association was founded by Taylor Hagans in early 2023 in hopes of bringing a love and appreciation for the fine arts to our lovely campus!
 <br> <br>
-We are currently in search of talent for our very first production, Romeo and Juliet. Tell a friend to tell a friend about our auditons which will be held on **September 19th**! We are in search of actors, writers, directors, stagehands, lighting crew, sound crew, set builders and more. If you hold interest in any capacity please do not hesitate to reach out!
+We are currently working toward our very first production, Romeo and Juliet. Tell a friend to tell a friend to join our club, as we are always searching for new talent! We are in search of writers, directors, stagehands, lighting crew, sound crew, set builders and more. We are particularly in need of crew members currently. If you hold interest in any capacity please do not hesitate to reach out!
 <br> <br>
 
 ### FAQs
-*Where will auditions be held?* -- Kenney Hall room 202. <br>
+*When are auditions?* -- Auditions for this year's production have already been held. Stay tuned about next year's! <br>
 *Do I need to be an actor to join?* -- No. This organization is open to those interested in any capacity. <br>
 *What are the dues?* -- Our dues this year are $35 for actors and $20 for crew. This cost covers costume, makeup, mics, and all other expenses for this production. It also covers a T-shirt for the crew members. <br>
 *What if I am nervous about auditions?* -- Our advice to you is that it never hurts to try! If you would like to audition it is best to be prepared and do your best. Our team is very professional and will never intentionally embarrass you or hurt your feelings during an audition.
