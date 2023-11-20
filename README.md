@@ -2,7 +2,7 @@
 <br>
 Welcome to the official page for TU Drama! Our association was founded by Taylor Hagans in early 2023 in hopes of bringing a love and appreciation for the fine arts to our lovely campus!
 <br> <br>
-We are currently working toward our very first production, Romeo and Juliet. Tell a friend to tell a friend to join our club, as we are always searching for new talent! We are in search of writers, directors, stagehands, lighting crew, sound crew, set builders and more. We are particularly in need of crew members currently. If you hold interest in any capacity please do not hesitate to reach out!
+We are currently working toward our very first production, African Mean Girls. Tell a friend to tell a friend to join our club, as we are always searching for new talent! We are in search of writers, directors, stagehands, lighting crew, sound crew, set builders and more. We are particularly in need of crew members currently. If you hold interest in any capacity please do not hesitate to reach out!
 <br> <br>
 
 ### FAQs
