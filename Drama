@@ -5,4 +5,4 @@ git commit -m "first commit"
 git branch -M main
 git remote add origin https://github.com/k-dottt/TU-Drama.git
 git push -u origin main
-theme: midnight
+theme: jekyll-theme-architect
